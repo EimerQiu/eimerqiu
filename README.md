@@ -9,4 +9,4 @@
 - I collaborate with ChatGPT to make projects.
 - One of my inventions, the PetHealth Pedometer earned third place in the Invention Fair competition.
 - 📫 How to reach me: eimerqiu@gmail.com
-- ⚡ Fun facts: I have 2 cats (I grew up with a Labrador who sadly passed away in August 2023)
+- ⚡ I have 2 cats (I grew up with a Labrador who sadly passed away in August 2023)
