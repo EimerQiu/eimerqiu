@@ -1,6 +1,6 @@
 ### Hi there 👋，I'm Eimer🫶
 
-- I'm currently 13 years old.
+- I'm currently 14 years old.
 - 8th grade Middle school student.
 - A pet lover, a technology builder & organizer, a drummer, and a Taekwondo green belt contestant.
 - I'm currently learning Python and Flutter.
