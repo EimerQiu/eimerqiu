@@ -1,7 +1,7 @@
 ### Hi there 👋，I'm Eimer🫶
 
 - I'm currently 15 years old.
-- 9th grade High school student.
+- 10th grade High school student.
 - A pet lover, a technology builder & organizer, a drummer, and a Taekwondo green belt contestant.
 - I'm currently learning Python and Flutter.
 - Champion of the 2019 RoboRave competition in Osaka.
